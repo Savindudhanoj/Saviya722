@@ -5,7 +5,7 @@
 
 - 🌱 I’m currently learning **Software Engineer and Graphic Designing**
 
-- 📫 How to reach me **saviya2023@gmail.com**
+- 📫 How to reach me **saviya2023@gmail.com** 
 
 - ⚡ Fun fact **Call me as Sawe**
 
